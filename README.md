@@ -1,0 +1,2 @@
+# 25110157_Nathasya Uliana Simbolon_Proyekinventorilab_07
+
